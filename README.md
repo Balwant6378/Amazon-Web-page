@@ -6,6 +6,9 @@
 ![image5](https://github.com/Balwant6378/Amazon-Web-page/assets/145771338/c2f396d7-b402-4473-8233-51f9d26f899a)
 ![image6](https://github.com/Balwant6378/Amazon-Web-page/assets/145771338/ebab4a42-7050-46a1-ab53-bda00f1950de)
 ![image7](https://github.com/Balwant6378/Amazon-Web-page/assets/145771338/ea7e08ee-5476-421f-98d9-c6a57c1790ac)
+![image8](https://github.com/Balwant6378/Amazon-Web-page/assets/145771338/c44b983e-b9ab-4305-9849-2cd78d2b1ffd)
+!
+
 
 
 
